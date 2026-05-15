@@ -1,4 +1,4 @@
-# 
+# rare Bitwarden for PC | Bitwarden for Windows Extension | secure-notes + credit-card-storage is the best Bitwarden for PC | Bitwarden for Windows extension, featuring secure-notes
 
 
 
